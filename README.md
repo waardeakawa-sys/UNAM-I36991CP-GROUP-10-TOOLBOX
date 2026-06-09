@@ -4,7 +4,7 @@ SINDERE M  224114859
 AMUTENYA AI  224113232  
 MAKAI M  225054027                                                                                                                                               MANGUNDU GM  225057301  
 NAMBINGA NT  225055805  
-IILEKA, ST   225047292  
+IILEKA, ST   225047292
 RUGHARO J 225057506 
 MWESHININGA RN  224155032  
 POKOLO, AK  225052288  
